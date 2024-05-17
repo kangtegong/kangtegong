@@ -1,4 +1,4 @@
-Developer, Lecturer, Writer
+Hi
 
 - [youtube](https://youtube.com/@kangminchul)
 - [profile](https://minchul.net) 
